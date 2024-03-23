@@ -10,7 +10,7 @@ Love:
 
 <br>
 
-![](img/pic1.jpg)  
+![](img/pic2.jpg)  
 
 <br>
 
